@@ -24,8 +24,8 @@ key binds:
 Have fun :)
 
 Contact:
-Discord: SusgUY446#5977
-TikTok: SUsgUY446
-YouTube: SusgUY446
+Discord: SusgUY446#5977    
+TikTok: SUsgUY446    
+YouTube: SusgUY446    
 email: susguy446@gmail.com (i dont look too often :| )
 
